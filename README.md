@@ -1,4 +1,4 @@
-# Artistly AI Coupon Code 20% OFF (2025) - Limited Time Deal! 🎨
+# Artistly AI Coupon Code 80% OFF (2025) - Limited Time Deal! 🎨
 
 Hey there! So you're looking for an **Artistly AI discount code**, right? Well good news - I just found a working **20% OFF coupon** that actually works (tested it myself yesterday). 
 
